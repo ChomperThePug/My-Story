@@ -1,1 +1,2 @@
-Krishanth Met Ritika and Abcd
+Krishanth Met Ritika After Meeting Abcd
+They Are Good Friends Now
